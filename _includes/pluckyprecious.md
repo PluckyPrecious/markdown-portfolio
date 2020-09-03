@@ -1,1 +1,0 @@
-# PluckyPrecious, be your pluckyspiration.
